@@ -1,1 +1,0 @@
-# purplehat-hc.github.io
